@@ -1,1 +1,2 @@
-# The Sparks Foundation Internship - June 2021
+# The Sparks Foundation Internship - August 2021
+Rohit Kundargi
